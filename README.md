@@ -1,2 +1,0 @@
-# Trader-ayden
-Trader ayden
